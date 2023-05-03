@@ -1,4 +1,12 @@
-_____Sexy?Sex
+Luna-a-discord-acc-gen🍃
+👑Luna a discord account generator made by ✰𝒏𝒈𝒆𝒍#5838
+⭐download pythong 3.0.11 to use
+👀if it did not work dm me i will try to fix the issues⭐
+🔥first generator ive ever made give credits if used or shared.❤️
+👑so yeah thats it get pythong dont forget anaconda🔥 remember to extract the files
+(●̮̮̃•̃)
+/█\
+.Π. ;( THANKS FOR USING THIS MUCH LOVE BABY<33
  ____?Sexy?Sexy
  ___y?Sexy?Sexy?
  ___?Sexy?Sexy?S
