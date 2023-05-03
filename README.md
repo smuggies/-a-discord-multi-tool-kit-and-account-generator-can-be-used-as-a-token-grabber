@@ -1,15 +1,3 @@
-
-╔╗
-║║
-║║──╔╗╔╦═╗╔══╗
-║║─╔╣║║║╔╗╣╔╗║
-║╚═╝║╚╝║║║║╔╗║
-╚═══╩══╩╝╚╩╝╚╝Luna-a-discord-acc-gen🍃
-👑Luna a discord account generator made by ✰𝒏𝒈𝒆𝒍#5838
-⭐download pythong 3.0.11 to use
-👀if it did not work dm me i will try to fix the issues⭐
-🔥first generator ive ever made give credits if used or shared.❤️
-👑so yeah thats it get pythong dont forget anaconda🔥 remember to extract the files!!
 _____Sexy?Sex
  ____?Sexy?Sexy
  ___y?Sexy?Sexy?
