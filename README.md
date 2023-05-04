@@ -1,56 +1,9 @@
-angel-a-discord-acc-gen🍃
-👑angel a discord account generator made by ✰𝒏𝒈𝒆𝒍#5838
-⭐download pythong 3.0.11 to use
-👀if it did not work dm me i will try to fix the issues⭐
-🔥first generator ive ever made give credits if used or shared.❤️
-👑so yeah thats it get pythong dont forget anaconda🔥 remember to extract the files
+✰𝒏𝒈𝒆𝒍-𝓪-𝓭𝓲𝓼𝓬𝓸𝓻𝓭-𝓪𝓬𝓬-𝓰𝓮𝓷🍃
+👑✰𝒏𝒈𝒆𝒍 𝓪 𝓭𝓲𝓼𝓬𝓸𝓻𝓭 𝓪𝓬𝓬𝓸𝓾𝓷𝓽 𝓰𝓮𝓷𝓮𝓻𝓪𝓽𝓸𝓻 𝓶𝓪𝓭𝓮 𝓫𝔂 ✰𝒏𝒈𝒆𝒍#5838
+⭐𝓭𝓸𝔀𝓷𝓵𝓸𝓪𝓭 𝓹𝔂𝓽𝓱𝓸𝓷𝓰 3.0.11 𝓽𝓸 𝓾𝓼𝓮
+👀𝓲𝓯 𝓲𝓽 𝓭𝓲𝓭 𝓷𝓸𝓽 𝔀𝓸𝓻𝓴 𝓭𝓶 𝓶𝓮 𝓲 𝔀𝓲𝓵𝓵 𝓽𝓻𝔂 𝓽𝓸 𝓯𝓲𝔁 𝓽𝓱𝓮 𝓲𝓼𝓼𝓾𝓮𝓼⭐
+🔥𝓯𝓲𝓻𝓼𝓽 𝓰𝓮𝓷𝓮𝓻𝓪𝓽𝓸𝓻 𝓲𝓿𝓮 𝓮𝓿𝓮𝓻 𝓶𝓪𝓭𝓮 𝓰𝓲𝓿𝓮 𝓬𝓻𝓮𝓭𝓲𝓽𝓼 𝓲𝓯 𝓾𝓼𝓮𝓭 𝓸𝓻 𝓼𝓱𝓪𝓻𝓮𝓭.❤️
+👑𝓼𝓸 𝔂𝓮𝓪𝓱 𝓽𝓱𝓪𝓽𝓼 𝓲𝓽 𝓰𝓮𝓽 𝓹𝔂𝓽𝓱𝓸𝓷 𝓭𝓸𝓷𝓽 𝓯𝓸𝓻𝓰𝓮𝓽 𝓐𝓝𝓖𝓔𝓛 𝓞𝓝 𝓣𝓞𝓟! 
 (●̮̮̃•̃)
 /█\
-.Π. ;( THANKS FOR USING THIS MUCH LOVE BABY<33
- ____?Sexy?Sexy
- ___y?Sexy?Sexy?
- ___?Sexy?Sexy?S
- ___?Sexy?Sexy?S
- __?Sexy?Sexy?Se
- _?Sexy?Sexy?Se
- _?Sexy?Sexy?Se
- _?Sexy?Sexy?Sexy?
- ?Sexy?Sexy?Sexy?Sexy
- ?Sexy?Sexy?Sexy?Sexy?Se
- ?Sexy?Sexy?Sexy?Sexy?Sex
- _?Sexy?__?Sexy?Sexy?Sex
- ___?Sex____?Sexy?Sexy?
- ___?Sex_____?Sexy?Sexy
- ___?Sex_____?Sexy?Sexy
- ____?Sex____?Sexy?Sexy
- _____?Se____?Sexy?Sex
- ______?Se__?Sexy?Sexy
- _______?Sexy?Sexy?Sex
- ________?Sexy?Sexy?sex
- _______?Sexy?Sexy?Sexy?Se
- _______?Sexy?Sexy?Sexy?Sexy?
- _______?Sexy?Sexy?Sexy?Sexy?Sexy
- _______?Sexy?Sexy?Sexy?Sexy?Sexy?S
- ________?Sexy?Sexy____?Sexy?Sexy?se
- _________?Sexy?Se_______?Sexy?Sexy?
- _________?Sexy?Se_____?Sexy?Sexy?
- _________?Sexy?S____?Sexy?Sexy
- _________?Sexy?S_?Sexy?Sexy
- ________?Sexy?Sexy?Sexy
- ________?Sexy?Sexy?S
- ________?Sexy?Sexy
- _______?Sexy?Se
- _______?Sexy?
- ______?Sexy?
- ______?Sexy?
- ______?Sexy?
- ______?Sexy
- ______?Sexy
- _______?Sex
- _______?Sex
- _______?Sex
- ______?Sexy
- ______?Sexy
- _______Sexy
- _______ Sexy?
- ________SexY
+.Π.  𝓣𝓗𝓐𝓝𝓚𝓢 𝓕𝓞𝓡 𝓤𝓢𝓘𝓝𝓖 𝓣𝓗𝓘𝓢 𝓜𝓤𝓒𝓗 𝓛𝓞𝓥𝓔 𝓑𝓐𝓑𝓨<33
